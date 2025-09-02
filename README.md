@@ -1,4 +1,4 @@
-# Hi, I'm Chiaki Ura 🐼
+# Hi, I'm Chiaki Ura 
 
 🎶 **Sound Producer / Composer / Guitarist**  
 🎛️ **Rec / Mix / Master Engineer**  
