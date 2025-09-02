@@ -7,7 +7,7 @@
 
 ---
 
-## 👋 About Me
+##  About Me
 - Sound producer working across **bands (from heavy rock / alternative metal to guitar rock, jazz, blues, and funk), hip hop, and idol projects**, handling everything from composition to Rec/Mix/Master  
 - Contributed extensively to **anime soundtracks** as a guitarist and mixing engineer  
 - Versatile experience in **recording, mixing, mastering, composition, and guitar performance**  
@@ -16,7 +16,7 @@
 
 ---
 
-## 🚀 Current Focus
+##  Current Focus
 - Bridging **Music × IT**  
 - Creating open-source tools for musicians and developers  
 - Exploring new ways to make the music industry more transparent and creator-friendly  
