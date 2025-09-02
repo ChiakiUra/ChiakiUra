@@ -12,7 +12,7 @@
 - Contributed extensively to **anime soundtracks** as a guitarist and mixing engineer  
 - Versatile experience in **recording, mixing, mastering, composition, and guitar performance**  
 - Teaching and mentoring young creators at **Unlimited Sound Works**  
-- Exploring IT development → building tools like **Plugin Intel Checker**  
+- Exploring IT development → building tools
 
 ---
 
