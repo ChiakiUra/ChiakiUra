@@ -2,7 +2,7 @@
 
 🎶 **Sound Producer / Composer / Guitarist**  
 🎛️ **Rec / Mix / Master Engineer**  
-💻 **Indie Developer**  
+💻 **Developer - Defsound Labs**  
 💼 CEO [RAVISSA Inc.](https://ravissa.jp) | Founder [Unlimited Sound Works](https://www.foriio.com/unlimitedsoundworks)  
 
 ---
