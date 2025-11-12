@@ -2,8 +2,8 @@
 　
 🎶 **Sound Producer / Composer / Guitarist**  
 🎛️ **Rec / Mix / Master Engineer**  
-💻 **Developer - Defsound Labs**  
 Apple Digital Masters Provider — on Providers List  
+💻 **Developer - Defsound Labs**  
 💼 CEO [RAVISSA Inc.](https://ravissa.jp) | Founder [Unlimited Sound Works](https://www.foriio.com/unlimitedsoundworks)  
 
 ---
