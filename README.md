@@ -17,13 +17,6 @@ Apple Digital Masters Provider — on Providers List
 
 ---
 
-##  Current Focus
-- Bridging **Music × IT**  
-- Creating open-source tools for musicians and developers  
-- Exploring new ways to make the music industry more transparent and creator-friendly  
-
----
-
 ## 🔗 Links
 - 🌐 [Linktree](http://linktr.ee/ChiakiUra)  
 - 🐦 [X (Twitter)](https://x.com/Dogma_ura)  
