@@ -24,5 +24,3 @@ Apple Digital Masters Provider — on Providers List
 - 🎸 [Unlimited Sound Works](https://unlimitedsoundworks.com/)  
 
 ---
-
-✨ Thanks for visiting my profile!
